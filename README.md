@@ -84,7 +84,7 @@ Choosing an Uber Clone from Sangvish for Your Taxi Business includes various ben
 
 In conclusion, using Sangvish's Uber Clone solution for your taxi business has several benefits. With customization, scalability, and advanced features, Sangvish enables you to remain competitive while providing an efficient experience for riders and drivers. Sangvish's solution is a strategic choice for revolutionizing your operations and succeeding in today's transport market.
 
-Visit - https://sangvish.com/airbnb-clone/
+Visit - https://sangvish.com/uber-clone/ 
 
 **Get In Touch With Us,**
 
